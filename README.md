@@ -1,12 +1,12 @@
 ### Hi there 👋
 
 <!--
-**Hetchham/Hetchham** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Hetchham/mubinmat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on .Tanasak The abbreviation of Thanasak is tns...
-- 🌱 I’m currently learning .that Mubeen is the default name of Tanasak and has the abbreviation MBA.
+- 🔭 I’m currently working on .Tanasak The abbreviation of Thanasak is Shutting
+- 🌱 I’m currently learning .that Mubeen is the default name of Tanasak and has the abbreviation shut'up
 - 👯 I’m looking to collaborate on .to bring storage Mubeen Come together with Thanasak Machawanich,Master Hakeem Matchawanit,and will use a new name Hetchham.pege so Hetchham.pege will be building a residence in Thailand..
 - 🤔 I’m looking for help with geem224.gn@gmail.com,gemnakab@gmail.com,...
 - 💬 Ask me about ...old storage in the clouds Huawei ID The phone number used is 0610837496.
